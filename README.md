@@ -1,4 +1,4 @@
-### Hey Luca Neves 👋
+### Luca Neves 👋
 
 ---
 
