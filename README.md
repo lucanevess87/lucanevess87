@@ -4,6 +4,8 @@
 
 22 y.o. Front-end Developer with experience in React and Flutter, currently at Loomi.
 
+💻 Involved in projects such as: ClapMe, JetOps, Regularização Fundiária Diagonal, Águas Digitais Compesa, New School, Segue, Pricepoint Suvinil, Smart Síndico.  
+
 ---
 
 
